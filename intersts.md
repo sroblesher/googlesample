@@ -1,4 +1,4 @@
-#Intersts
+# Interests
 
 ## Play soccer
 
